@@ -4,8 +4,9 @@
 |capitão América: Admirável mundo novo|✭✭✭✭✩|3.3/5| 
 |O auto da compadecida 2|✭✭✭✯✩|3.5/5| 
 |Mufasa: o rei leão|✭✭✭✩✩|3/5| 
-|Ainda estou aqui|✭✭✭✭✭|5/5| 
-- Referências
+|Ainda estou aqui|✭✭✭✭✭|5/5|  
+
+**Referências**:
   
 - [capitão América: Admirável mundo novo](https://www.adorocinema.com/filmes/filme-275210/)
 - [O auto da compadecida 2](https://www.adorocinema.com/filmes/filme-314577/)
